@@ -1,1 +1,1 @@
-# skripshit-unl
+# skripsi-unl
